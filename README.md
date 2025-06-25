@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 ### what about me
 
-Soy ingeniero sistemas y anlaista web  
+Soy ingeniero sistemas y analista web  
 
 ### what do i do for fun ?
 
