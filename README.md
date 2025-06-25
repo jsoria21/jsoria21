@@ -14,3 +14,15 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+### what about me
+
+Soy ingeniero sistemas y anlaista web  
+
+### what do i do for fun ?
+
+Leer libros de literatura, escuchar rock, jugar futbol
+
+
+
+
