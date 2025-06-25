@@ -17,11 +17,11 @@ Here are some ideas to get you started:
 
 ### what about me
 
-Soy ingeniero sistemas y analista web  
+Soy ingeniero de sistemas y analista web  
 
 ### what do i do for fun ?
 
-Leer libros de literatura, escuchar rock, jugar futbol
+Leer libros de literatura, escuchar rock
 
 
 
